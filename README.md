@@ -1,0 +1,2 @@
+# Proyecto-1.-Optimizaci-n.
+Equipo conformado por: EMILIO GELISTA FREGOSO, AMIR GUTIERREZ PARTIDA, ROBERTO TORRES BELTRAN.
